@@ -1,4 +1,5 @@
 <div align="center">
- <img src="https://github.com/user-attachments/assets/7c31aa0c-9446-4dae-95f0-433b74ff1d3a" /> </p>
- i forgot how to code.
+ </p> </p> </p> </p> </p> </p> </p> </p> </p> </p> </p> </p>
+ <img src="https://github.com/user-attachments/assets/c8aadbf8-b32a-4306-969e-0e318d47e029" height=300 weigh=550 /> </p>
+</p> </p> </p> </p> </p> </p> </p> </p> </p> </p> </p> </p>
 </div>
